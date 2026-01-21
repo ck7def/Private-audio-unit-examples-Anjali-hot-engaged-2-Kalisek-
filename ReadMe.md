@@ -1,3 +1,10 @@
+license information tldr we g but we like our money.  so hit me up if you can't afford or if you need help.  no shame all for the love of the game.   serious.  however if my clique and fam don't know you.  it will be fucking painful financial and physical in real life. let me clean very clear.  the above is not an idle threat.   
+
+
+
+
+
+
 # AudioUnit-Examples
 
 ## Overview
